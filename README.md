@@ -1,4 +1,4 @@
-## Bem-vindo ao DailyHenri! ⭐
+## Bem-vindo ao DailyHenri! 🔷
 
 Meu nome é Henri
 
